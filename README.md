@@ -9,6 +9,6 @@ Hi I'm Mickaellah, but call me Kenz! I like listening to music hihi but I usuall
 
 ## Aine Seblos
 ![only applicable when happy](/seblos.gif)  
-Hello! My name is Aine but I'd rather be called ion because I only got my ion him(joke lang sir :>). I like watching movies especially from Disney and also listen to music. 
+Hello! My name is Aine but I'd rather be called ion because I only got my ion him(joke lang sir :>). I like watching movies especially from Disney and also listening to rnb music. 
 ## Sang Jin Kim 
 ![Me after seeing my grades](/Kim.jpg)
