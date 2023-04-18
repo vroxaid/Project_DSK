@@ -5,3 +5,6 @@ We are ***Daradar, Seblos, and Kim!***
 
 ## Mickaellah Daradar
 ![This is so me](/Daradar.jpg)
+
+## Aine Seblos
+![only applicable when happy](/seblos.gif)
