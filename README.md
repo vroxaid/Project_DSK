@@ -8,3 +8,6 @@ We are ***Daradar, Seblos, and Kim!***
 
 ## Aine Seblos
 ![only applicable when happy](/seblos.gif)
+
+## Sang Jin Kim 
+![Me after seeing my grades](/kim.png)
