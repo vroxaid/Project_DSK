@@ -4,4 +4,4 @@ We are ***Daradar, Seblos, and Kim!***
 ### Member Introductions:
 
 ## Mickaellah Daradar
-![This is so me](/Daradar.jpeg)
+![This is so me](/Daradar.jpg)
