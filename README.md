@@ -10,4 +10,4 @@ We are ***Daradar, Seblos, and Kim!***
 ![only applicable when happy](/seblos.gif)
 
 ## Sang Jin Kim 
-![Me after seeing my grades](/Kim.png)
+![Me after seeing my grades](/Kim.jpg)
